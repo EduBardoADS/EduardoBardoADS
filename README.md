@@ -1,7 +1,7 @@
 ## Olá!  Seja bem vindo ao meu perfil do GitHub ❤ 
 (atualizado 09/11/2021)
 
-[1°semestre] Estudante de Tecnólogo em análise e desenvolvimento de sistemas/ Unicsul - Liberdade/SP
+[Iniciando o 2°semestre] Estudante de Tecnólogo em análise e desenvolvimento de sistemas/ Unicsul - Liberdade/SP
 
 
 <div>
